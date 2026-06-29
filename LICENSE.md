@@ -1,4 +1,4 @@
-
+updated all star tower defense Scripts is the best all star tower defense Script, featuring teleport and one-hit kill. Safe and powerful for all your
 
 
 
